@@ -11,9 +11,11 @@ you can find me by searching @adamizee_ or @.adamizee_ in twitter/x, tiktok and 
 
 
 - about me:
-✧° im very talkative, im fun, TALK??? TALK??? YES PLEASEEEE!!- but once again im a human, i can be very dry sometimes and thats mean my condition/mood is low
-✧° im an artist!!! and also animator, if you want to do a collab arts w me, NO NEED TO ASK TWICE
-PLEASEEEE
+(✧° im very talkative, im fun, TALK??? TALK??? YES PLEASEEEE!!- but once again im a human, i can be very dry sometimes and thats mean my condition/mood is low. 
+(✧° im an artist!!! and also animator, if you want to do a collab arts w me, NO NEED TO ASK TWICE
+PLEASEEEE!!!!!!!? 
+(✧° i love my friends, I LOVE MY POOKIES SO MUCHHHHHH (esp my lovely husband). 
+(✧° im a huge Uzi simp and thats not a total lie
 
 
 
