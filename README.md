@@ -1,5 +1,7 @@
-✩˚⊹ sup loves! welcome to my GitHub or smth- my name is Adami!! you can call me Dami or Ami >.0 (im also go with Neo or Uzee as my name!) 
-you can find me with searching @adamizee_ or @.adamizee_ in twitter/x, tiktok and discord! - im a transmale and i use "he/him" or "he/they" for my pronouns despite i usually use Uzi skins in pony town TwT
+✩˚⊹ sup loves! welcome to my GitHub or smth- my name is Adami!! you can call me Dami or Ami >.0 (feel free to also call me w Neo or Uzee) 
+you can find me by searching @adamizee_ or @.adamizee_ in twitter/x, tiktok and discord! - im a transmale - i use "he/him" orn"he/they" for my pronouns!! 
+
+
 
 
 
