@@ -2,6 +2,11 @@
 you can find me by searching @adamizee_ or @.adamizee_ in twitter/x, tiktok and discord! - im a transmale - i use "he/him" orn"he/they" for my pronouns!! 
 
 
+- rules: 
+✧° im fine with harmfull convos, so if youre senstive towards any convos like that please tell me so i wont go too far
+✧° freaky jokes are alright, as long not adding explicit-disturbing topic such as r@p3, etc. 
+✧° im a human, i can have emotion, so if i have starting to avoids you. please dont chase me
+
 
 
 
