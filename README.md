@@ -1,5 +1,7 @@
 sup, welcome to my github description
 
+➥ Uzi's wife (+ uzi fictkin) shes so me and im so her. kinda sensitive ╹ .̮ ╹ - ♡: Uzi Doorman, (male) SD. J, Nyx/Pepto (Panic Au)܀
+
 
 
 <!--
