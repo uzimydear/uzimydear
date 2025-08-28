@@ -4,11 +4,8 @@ sup, welcome to my github description
 
 " the hidden artist and unmotivated animator " ppfftt, the fuck 
 
-
-        ⏤͟͟͞͞ ♫♪"You're my forbidden fruit"♬
-       ⏤͟͟͞͞ ♫♪"Just fall into me my girl"♬
-       ⏤͟͟͞͞ ♫♪"all this fun is overrated"♬
-       ⏤͟͟͞͞ ♫♪"when the yarrow grows..."♬
+free2int (im friendly), free c+h, free to talk with
+dnc my skins idk 
 
 
 
