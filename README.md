@@ -1,11 +1,4 @@
-sup, welcome to my github description
 
-➥ Uzi's wife (+ uzi fictkin) shes so me and im so her. kinda sensitive n childish ╹ .̮ ╹ - "♡": Uzi Doorman, (male) SD. J, Nyx/Pepto (Panic Au)܀ 
-
-" the hidden artist and unmotivated animator " ppfftt, the fuck 
-
-free2int (im friendly), free c+h, free to talk with
-dnc my skins idk 
 
 
 
