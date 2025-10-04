@@ -2,4 +2,3 @@ hello hello hello welcome ! Damie talking here and lets get to know about some m
 ![Image Alt](INTRODUCTION.png)
 
 
-finished ? great ! so 
