@@ -1,6 +1,8 @@
 hello hello hello welcome ! Damie talking here and lets get to know about some main points abt me first before interacting !
 ![Image Alt](INTRODUCTION.png)
-<!--
+
+
+finished ? great ! so l
 **uzimydear/uzimydear** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
